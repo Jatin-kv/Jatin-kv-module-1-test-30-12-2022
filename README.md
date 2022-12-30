@@ -1,0 +1,1 @@
+Weekly Contest 1 submitted by Jatin Kumar, on 30th December,2022
